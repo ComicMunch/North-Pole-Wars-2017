@@ -1,5 +1,11 @@
 ### ❄️ North Pole Wars: 
 
+
+### Introduction:
+In December of 2017, I was thinking of some holiday illustrations I could serve on my Instagram, at first I thought of a Christmas themed warrior fighting a Polar Bear monster, I enjoyed the drawing and seeing as there was 5 days until Christmas I decided to whip up a serial story off the top of my head that would conclude on Christmas day. This is that story.
+
+This is another example of a short story inspiring bigger works. Just as Law of the Gun inspired The Rowdy West, North Pole Wars became the inspiration for Crystal Legend.
+
 ![Page 01](North%20Pole%20Wars%2001.jpg)
 ![Page 02](North%20Pole%20Wars%2002.jpg)
 ![Page 03](North%20Pole%20Wars%2003.jpg)
