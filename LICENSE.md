@@ -10,7 +10,6 @@ No part of this work, including the characters, story, and visual designs, may b
 
 ### Protected Characters & Entities:
 * **Peppermint of Cinnamon Alley**
-* **Frosty the Snowman (Warrior Variant)**
 * **Krampus (Multidimensional Entity)**
 * **The Abominable Snow Beasts**
 
