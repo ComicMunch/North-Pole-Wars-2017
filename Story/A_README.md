@@ -37,4 +37,5 @@ This is another example of a short story inspiring bigger works. Just as Law of 
 ![Page 29](North%20Pole%20Wars%2029.jpg)
 ![Page 30](North%20Pole%20Wars%2030.jpg)
 ![Page 31](North%20Pole%20Wars%2031.jpg)
+![Page 32](North%20Pole%20Wars%2032.jpg)
 
